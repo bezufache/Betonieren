@@ -3,7 +3,7 @@
 ### :warning: Hinweis
 Weder Repository-Ersteller noch potentielle Contributors sind Urheber dieser Liste. Sie wurde vor allem durch Teilen in Messenger-Gruppen bekannt - woher sie stammt, ist nicht bekannt. Laut Google *könnte* sie der [Facebook-Seite "Betonieren"](https://de-de.facebook.com/pg/Betonieren) entsprungen sein.
 
-Dieses Repository soll ausschlißelich der zentralen Sammlung und der freien Zusammenarbeit dienen. Politisch inkorrekte Einträge wurden bei Erstellung des Repositories entfernt und werden gegebenenfalls auch zukünftig abgelehnt.
+Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zusammenarbeit dienen. Politisch inkorrekte Einträge wurden bei Erstellung des Repositories entfernt und werden gegebenenfalls auch zukünftig abgelehnt.
 
 
 ### Originale Liste
