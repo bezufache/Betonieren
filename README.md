@@ -17,10 +17,8 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich christlich katholisch einen neibomben!
 * Sich unnormal einen neischweißen!
 * Sich blackoutartig einen neinageln!
-* Sich gnadenlos einen neitrabben!
 * Sich triumphartig einen neibohren!
 * Sich übertrieben einen neigwalten!
-* Sich cok güzel einen neitackern!
 * Sich boiartig einen neiboinieren!
 * Sich bauarbeitermäßig einen neizemetieren!
 * Sich so richtig türkisch-arabisch einen neidönern!
@@ -88,7 +86,6 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich fußballartig einen neischießen!
 * Sich angemessen einen neiwinkeln!
 * Sich undercoverstyle-mäßig einen neischleichen!
-* Sich baulöwenstierartig einen neitrabben!
 * Sich so richtug ungepflegt mal einen neiwackeln!
 * Sich hygienisch mal einen neiwaschen!
 * Sich schlagzeugmäßig einen neitrommeln!
