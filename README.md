@@ -181,3 +181,18 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich dichterartig einen neidichten!
 * Sich ochsenmäßig einen neipflugen!
 * Sich biberartig einen neiholzen!
+
+
+### Unsortierte Erweiterungen
+* Sich github-mäßig einen neicontributen
+* Sich Subversion-mäßig einen neicommiten
+* Sich Sharepoint-mäßig einen neicollaboraten
+* Sich zellwandmäßig einen neidiffundieren
+* Sich endoplasmatisch einen neimitochondrieren
+* Sich Lufthansa-mäßig einen neichecken
+* Sich fluglotsenmäßig einen neiwinken
+* Sich LoveParade-mäßig einen neidrücken
+* Sich bäckermäßig einen neisemmeln
+* Sich Felgen-mäßig einen neiwuchten
+* Sich agrarwirtschaftlich einen neihacken
+* Sich Floß-mäig einen neitreiben
