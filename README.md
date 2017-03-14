@@ -5,21 +5,16 @@ Weder Repository-Ersteller noch potentielle Contributors sind Urheber dieser Lis
 
 Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zusammenarbeit dienen. Politisch inkorrekte Einträge wurden bei Erstellung des Repositories entfernt und werden gegebenenfalls auch zukünftig abgelehnt.
 
+Die originale, ungefilterte und unsortierte Liste ist zu finden unter: https://github.com/bezufache/Betonieren/blob/master/Original.md
 
 ### Originale Liste
-* Sich einfach gepflegt mal einen neibetonieren!
-* Sich einfach locker lässig einen neizwitschern!
+* Sich einfach gepflegt mal maurermäßig einen neibetonieren!
 * Sich ökonomisch wertvoll einen neistellen!
 * Sich xylophonartig einen neirhytmisieren!
 * Sich mariomäßig einen neipilzen!
-* Sich seine Leitungen abdichten!
-* Sich legendär einen neiorgeln!
-* Sich christlich katholisch einen neibomben!
-* Sich unnormal einen neischweißen!
+* Sich römisch-katholisch einen neiorgeln!
+* Sich metallverarbeitend einen neischweißen!
 * Sich blackoutartig einen neinageln!
-* Sich triumphartig einen neibohren!
-* Sich übertrieben einen neigwalten!
-* Sich boiartig einen neiboinieren!
 * Sich bauarbeitermäßig einen neizemetieren!
 * Sich so richtig türkisch-arabisch einen neidönern!
 * Sich lebermäßig einen reinkäsen!
@@ -27,7 +22,7 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich mal einfach arabisch einen neiölen!
 * Sich malerisch einen neilackieren!
 * Sich bauarbeitermäßig einen neiwalzen!
-* Sich handarbeitsmäßig einen neihämmra!
+* Sich handarbeitsmäßig einen neihämmern!
 * Sich ökologisch wertvoll einen neisäen!
 * Sich granatenmäßig einen reinmörsern!
 * Sich maulwurfartig einen neigraben!
@@ -37,9 +32,8 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich brasilianisch einen neizaubern!
 * Sich baurisch einen neilandwirtschaften!
 * Sich mal so richtig kaminartig einen neischloten!
-* Sich zerstörrerisch verherrend einen neibürsten!
 * Sich so starwars mäßig mal einen neilasern!
-* Sich zweiten weltkriegmäßig einen neibombardieren!
+* Sich zweit-weltkriegmäßig einen neibombardieren!
 * Sich mal MG-artig einen neiballern!
 * Sich einfach emoartig einen neiritzen!
 * Sich punkartig einen neifärben!
@@ -75,7 +69,7 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich stuhlartig einen neistellen!
 * Sich amerikanisch einfach mal einen neifetten!
 * Sich mähdrescherartig einen neidreschen!
-* Sich pumpgunartig einen neischrothen!
+* Sich pumpgunartig einen neischroten!
 * Sich umzugsartig einen neitapezieren!
 * Sich facebookartig einen neispamen!
 * Sich golfartig einen neilochen!
@@ -84,9 +78,8 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich bayrisch einen neisenfen!
 * Sich ballermanmäßig einen neikübeln!
 * Sich fußballartig einen neischießen!
-* Sich angemessen einen neiwinkeln!
+* Sich geometrisch einen neiwinkeln!
 * Sich undercoverstyle-mäßig einen neischleichen!
-* Sich so richtug ungepflegt mal einen neiwackeln!
 * Sich hygienisch mal einen neiwaschen!
 * Sich schlagzeugmäßig einen neitrommeln!
 * Sich wohlklingend einen neigeigen!
@@ -95,10 +88,9 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich mal filmartig einen neiziehen!
 * Sich tarzanmäßig einen neischwingen!
 * Sich koksartig mal fett einen neischnupfen!
-* Sich chili mili vogelartig einen neiflattern!
 * Sich talibanmäßig einfach mal gscheid einen neibomben!
 * Sich waldarbeitermäßig mal einen neifällen!
-* Sich so richtig kloartig mal gscheid einen neispühlen!
+* Sich so richtig kloartig mal gscheid einen neispülen!
 * Sich lockenartg mal einen neizwirbeln!
 * Sich E10-mäßig mal hart einen neitanken!
 * Sich waschmaschinenmäßig einen neischleudern!
@@ -120,7 +112,6 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich wirtartig so richtig kriminell einen neizapfen!
 * Sich mal so richtig bahnartig fett einen neitunneln!
 * Sich meerartig mal so richtig einen neischiffen!
-* Sich locker leger einen neikegeln!
 * Sich explosionsartig einen neibowlen!
 * Sich klitschkomäßig hammerhart einen neiboxen!
 * Sich pflanzenmäßig einen neifotosynthieren!
@@ -133,7 +124,7 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich füllermäßig einen neitinten!
 * Sich flaschenzugartig mal gscheid einen neikurbeln!
 * Sich uhrenmäßig einen neitimen!
-* Sich O-mäßig gscheid einen neikreisen!
+* Sich ellipsoid einen neikreisen!
 * Sich cremeartig einen neireiben!
 * Sich mathematisch mal so richtig einen neizirkeln!
 * Sich shampoomäßig mal gscheid einen neischäumen!
@@ -144,7 +135,7 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich babyfacemäßig einen neiwickeln!
 * Sich bergartig gscheid einen neiklettern!
 * Sich pinselartig einen neitupfen!
-* Sich kühlschrankmäßig einen nekühlen!
+* Sich kühlschrankmäßig einen neikühlen!
 * Sich eiskalt einen neigfrieren!
 * Sich schrankartig einfach mal so richtig einen neistellen!
 * Sich u-bootmäßig einen neitauchen!
@@ -163,7 +154,6 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich spiegelartig einen neiblenden!
 * Sich burgermäßig mal einen neibraten!
 * Sich schreinerartig einen neikolben!
-* Sich milchbubiartig einen neieumeln!
 * Sich maßvoll mal gscheid einen neigoißen!
 * Sich saunamäßig mal so richtig einen neischwitzen!
 * Sich pinselartig einen neikleischdern!
@@ -176,25 +166,23 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich Bänker-mäßig mal einen neizinsen!
 * Sich Eskalationsmäßig mal so richtig einen neiblackouten!
 * Sich explosionsartig einen neibomben!
-* Sich kirchlich mal ganz locker einen neiorgeln!
 * Sich symphonieartig einen neikomponieren!
-* Sich dichterartig einen neidichten!
 * Sich ochsenmäßig einen neipflugen!
 * Sich biberartig einen neiholzen!
 
 ### Unsortierte Erweiterungen
-* Sich github-mäßig einen neicontributen
-* Sich Subversion-mäßig einen neicommiten
-* Sich Sharepoint-mäßig einen neicollaboraten
-* Sich zellwandmäßig einen neidiffundieren
-* Sich endoplasmatisch einen neimitochondrieren
-* Sich Lufthansa-mäßig einen neichecken
-* Sich fluglotsenmäßig einen neiwinken
-* Sich LoveParade-mäßig einen neidrücken
-* Sich bäckermäßig einen neisemmeln
-* Sich Felgen-mäßig einen neiwuchten
-* Sich agrarwirtschaftlich einen neihacken
-* Sich Floß-mäig einen neitreiben
+* Sich github-mäßig einen neicontributen!
+* Sich Subversion-mäßig einen neicommiten!
+* Sich Sharepoint-mäßig einen neicollaboraten!
+* Sich zellwandmäßig einen neidiffundieren!
+* Sich endoplasmatisch einen neimitochondrieren!
+* Sich Lufthansa-mäßig einen neichecken!
+* Sich fluglotsenmäßig einen neiwinken!
+* Sich LoveParade-mäßig einen neidrücken!
+* Sich bäckermäßig einen neisemmeln!
+* Sich Felgen-mäßig einen neiwuchten!
+* Sich agrarwirtschaftlich einen neihacken!
+* Sich floßmäßig einen neitreiben!
 * Sich omiramäßig einen neimilchen!
 * Sich psychopatenmäßig einen neiaxten!
 * Sich texas-chainsaw-mäßig einen neimassakren!
