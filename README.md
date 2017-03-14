@@ -195,3 +195,10 @@ Die originale, ungefilterte und unsortierte Liste ist zu finden unter: https://g
 * Sich grimm-mäßig einen hänsel-abartig neigretlen!
 * Sich tsunamiartig einen neifluten!
 * Sich vorkriegszeitlich einen neiputschen!
+* Sich feuerwehrartig einen neiflexen!
+* Sich Gong-artig einen neischeppern!
+* Sich administrativ einen neiinstallieren!
+* Sich Trump-like einen neimauern!
+* Sich Steve-O-mäßig einen neiwürgen!
+* Sich ego-mäßig einen neishooten!
+* Sich Zeugen-Jehova-mäßig einen neiklopfen!
