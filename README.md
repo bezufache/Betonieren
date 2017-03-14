@@ -181,10 +181,7 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich dichterartig einen neidichten!
 * Sich ochsenmäßig einen neipflugen!
 * Sich biberartig einen neiholzen!
-* Sich omiramäßig einen neimilchen!
-* Sich psychopatenmäßig einen neiaxten!
-* Sich texas-chainsaw-mäßig einen neimassakren!
-* Sich Johnnymäßig einen neishinen!
+
 ### Unsortierte Erweiterungen
 * Sich github-mäßig einen neicontributen
 * Sich Subversion-mäßig einen neicommiten
@@ -198,3 +195,7 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich Felgen-mäßig einen neiwuchten
 * Sich agrarwirtschaftlich einen neihacken
 * Sich Floß-mäig einen neitreiben
+* Sich omiramäßig einen neimilchen!
+* Sich psychopatenmäßig einen neiaxten!
+* Sich texas-chainsaw-mäßig einen neimassakren!
+* Sich Johnnymäßig einen neishinen!
