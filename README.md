@@ -184,6 +184,7 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 * Sich omiramäßig einen neimilchen!
 * Sich psychopatenmäßig einen neiaxten!
 * Sich texas-chainsaw-mäßig einen neimassakren!
+* Sich Johnnymäßig einen neishinen!
 ### Unsortierte Erweiterungen
 * Sich github-mäßig einen neicontributen
 * Sich Subversion-mäßig einen neicommiten
