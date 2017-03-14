@@ -7,7 +7,7 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 
 Die originale, ungefilterte und unsortierte Liste ist zu finden unter: https://github.com/bezufache/Betonieren/blob/master/Original.md
 
-### Originale Liste
+### Sich betrinken ...
 * Sich einfach gepflegt mal maurermäßig einen neibetonieren!
 * Sich ökonomisch wertvoll einen neistellen!
 * Sich xylophonartig einen neirhytmisieren!
@@ -169,8 +169,6 @@ Die originale, ungefilterte und unsortierte Liste ist zu finden unter: https://g
 * Sich symphonieartig einen neikomponieren!
 * Sich ochsenmäßig einen neipflugen!
 * Sich biberartig einen neiholzen!
-
-### Unsortierte Erweiterungen
 * Sich github-mäßig einen neicontributen!
 * Sich Subversion-mäßig einen neicommiten!
 * Sich Sharepoint-mäßig einen neicollaboraten!
