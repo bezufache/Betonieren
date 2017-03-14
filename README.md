@@ -7,7 +7,14 @@ Dieses Repository soll ausschließlich der zentralen Sammlung und der freien Zus
 
 Die originale, ungefilterte und unsortierte Liste ist zu finden unter: https://github.com/bezufache/Betonieren/blob/master/Original.md
 
-### Sich betrinken ...
+#### Wie man mitmacht
+* Dieses Repository "forken"
+* Änderungen an **README.md** (im eigenen, geforkten Repository) vornehmen
+* Änderungen im eigenen Repository committen und pushen
+* PullRequest vom eigenen Repository an dieses Repository stellen
+* Unmengen an unausgesprochenem Dank verbuchen
+
+## Sich betrinken ...
 * Sich einfach gepflegt mal maurermäßig einen neibetonieren!
 * Sich ökonomisch wertvoll einen neistellen!
 * Sich xylophonartig einen neirhytmisieren!
