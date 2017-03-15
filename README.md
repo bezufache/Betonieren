@@ -15,6 +15,7 @@ Die originale, ungefilterte und unsortierte Liste ist zu finden unter: https://g
 * Unmengen an unausgesprochenem Dank verbuchen
 
 ## Sich betrinken ...
+* Sich alphanumerisch einen neisortieren!
 * Sich einfach gepflegt mal maurermäßig einen neibetonieren!
 * Sich ökonomisch wertvoll einen neistellen!
 * Sich xylophonartig einen neirhytmisieren!
