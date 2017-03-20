@@ -203,3 +203,5 @@ Die originale, ungefilterte und unsortierte Liste ist zu finden unter: https://g
 * Sich Steve-O-mäßig einen neiwürgen!
 * Sich ego-mäßig einen neishooten!
 * Sich Zeugen-Jehova-mäßig einen neiklopfen!
+* Sich Hackl-Schorsch-mäßig einen neigleiten!
+* Sich Heidi-mäßig einen neijodeln!
